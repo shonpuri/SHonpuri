@@ -4,7 +4,7 @@
 
 🎯 **Odoo Tech Lead | ERP Architect | Team Manager (7+ Years)**  
 📍 Based in India | 🌍 Delivered ERP Solutions in UAE, Kenya, Uganda, Tanzania  
-📧 shonpuri@gmail.com | 📱 WhatsApp: +91 9173765447  
+📧 shonpuri@gmail.com | 📱 WhatsApp: +91 9173765447  Cell No : +91 8160065232
 
 ---
 
