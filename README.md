@@ -47,6 +47,6 @@ I build smart, scalable ERP solutions across industries: manufacturing, logistic
 
 💼 Open for: Freelance / Full-Time / Remote Projects  
 📧 Email: shonpuri@gmail.com  
-🌐 LinkedIn: [linkedin.com/in/shonpuri](#)  
+🌐 LinkedIn: https://www.linkedin.com/in/shonpal-puri-64041532
 📱 WhatsApp: +91 9173765447
 
