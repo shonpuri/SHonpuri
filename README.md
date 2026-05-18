@@ -2,7 +2,7 @@
 
 # 👋 Hi, I'm Shonpal Puri
 
-🎯 **Odoo Tech Lead | ERP Architect | Team Manager (7+ Years)**  
+🎯 **Odoo Tech Lead | ERP Architect | Team Manager (10+ Years)**  
 📍 Based in India | 🌍 Delivered ERP Solutions in UAE, Kenya, Uganda, Tanzania  
 📧 shonpuri@gmail.com | 📱 WhatsApp: +91 9173765447  Cell No : +91 8160065232
 
@@ -48,5 +48,5 @@ I build smart, scalable ERP solutions across industries: manufacturing, logistic
 💼 Open for: Freelance / Full-Time / Remote Projects  
 📧 Email: shonpuri@gmail.com  
 🌐 LinkedIn: https://www.linkedin.com/in/shonpal-puri-64041532
-📱 WhatsApp: +91 9173765447
+📱 WhatsApp: +91 9173765447 Cell No : +91 8160065232
 
